@@ -1,4 +1,4 @@
 Renan Muniz Merlo
-Java Developer
+<br>Java Developer
 
 https://www.linkedin.com/in/renan-muniz-merlo/
